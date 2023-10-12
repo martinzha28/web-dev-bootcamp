@@ -12,4 +12,4 @@ JavaScript Completed:
 
 JQuery Completed:
 
-Need to finish 6.4 Motivation Meme
+# Need to finish 6.4 Motivation Meme
