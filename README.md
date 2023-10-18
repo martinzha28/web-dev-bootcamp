@@ -16,12 +16,3 @@ JQuery Completed:
 
 Need to finish 6.4 Motivation Meme
 
-
-fiowJoiawefiwjefoiawe
-aweifajweofjawioefjwa
-weiofajweifjwaeifjw
-wifjwaofiejwoeif
-iowefjiowfejwoaifjwiefjwoeifjwaoefjwef
-waiefjldksvmnwiweoirwoienav
-hello ther my name is aiwejfiowjefoiwajfoi
-aoi
