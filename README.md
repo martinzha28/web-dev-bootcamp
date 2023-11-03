@@ -20,8 +20,7 @@ Need to finish 6.4 Motivation Meme
 aiwjefaowiefjaiowf
 aweifjawf
 
-awef
-aw
+
 ef
 waef
 aw
