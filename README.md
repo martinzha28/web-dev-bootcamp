@@ -21,10 +21,6 @@ aiwjefaowiefjaiowf
 aweifjawf
 
 
-ef
-
-f
-waef
 
 aweifjawf
 
